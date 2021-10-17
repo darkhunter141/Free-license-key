@@ -39,6 +39,12 @@ KLZ5G-X37YY-65ZYN-EUSV7-WPPBS
 
 6JZUY-32TKX-TK9W7-DU387-9RWKZ
 ```
+# EMU8086 - MICROPROCESSOR EMULATOR for Windows
+
+```
+username : ISHAAN,glaitm 
+key : 27R3VDEFYFX4N0VC3FRTQZX
+```
 
 <br>
 <h3> It Provide only for legal activities. If You Misuse it we are not responsible for this</h3>
